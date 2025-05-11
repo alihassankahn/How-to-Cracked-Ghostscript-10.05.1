@@ -1,0 +1,1 @@
+# How-to-Cracked-Ghostscript-10.05.1
